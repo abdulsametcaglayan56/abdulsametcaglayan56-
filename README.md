@@ -1,4 +1,4 @@
-# abdulsametcaglayan56-
+# abdulsametcaglayan56
 Hi! I'm Abdulsamet 👋
 Computer engineering student from Gelisim University.
 I love coding, creating projects, and learning new tech every day.
